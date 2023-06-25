@@ -1,4 +1,4 @@
-![image](https://github.com/AobingJava/AobingJava/assets/41898583/96e4c5a0-8110-40a3-95e6-d5e4965fa284)# Hi there  👏🏻
+# Hi there  👏🏻
 
 
 27岁，互联网从业者，本科电子信息工程，喜欢内容创作
